@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-What gets measured gets improved. — Robin Sharma
+Fallacies do not cease to be fallacies because they become fashions. — Gilbert Chesterton
 <!--END_SECTION:daily_log-->
 
 ---
