@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Fallacies do not cease to be fallacies because they become fashions. — Gilbert Chesterton
+Sometimes you have to travel a long way to find what is near. — Paulo Coelho
 <!--END_SECTION:daily_log-->
 
 ---
