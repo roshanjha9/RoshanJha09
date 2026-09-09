@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Sometimes you have to travel a long way to find what is near. — Paulo Coelho
+Repetition does not transform a lie into a truth. — Franklin D. Roosevelt
 <!--END_SECTION:daily_log-->
 
 ---
