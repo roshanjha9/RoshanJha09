@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Repetition does not transform a lie into a truth. — Franklin D. Roosevelt
+Let not your mind run on what you lack as much as on what you have already. — Marcus Aurelius
 <!--END_SECTION:daily_log-->
 
 ---
