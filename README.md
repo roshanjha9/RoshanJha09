@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Let not your mind run on what you lack as much as on what you have already. — Marcus Aurelius
+Bloom where you are planted! — Mary Engelbreit
 <!--END_SECTION:daily_log-->
 
 ---
