@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Bloom where you are planted! — Mary Engelbreit
+Change yourself - you are in control. — Mahatma Gandhi
 <!--END_SECTION:daily_log-->
 
 ---
