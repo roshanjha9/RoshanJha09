@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Change yourself - you are in control. — Mahatma Gandhi
+You have as much laughter as you have faith. — Martin Luther
 <!--END_SECTION:daily_log-->
 
 ---
