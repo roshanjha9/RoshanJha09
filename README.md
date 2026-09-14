@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-You have as much laughter as you have faith. — Martin Luther
+You don't have to be great to start, but you have to start to be great. — Zig Ziglar
 <!--END_SECTION:daily_log-->
 
 ---
