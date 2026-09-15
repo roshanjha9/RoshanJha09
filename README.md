@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-You don't have to be great to start, but you have to start to be great. — Zig Ziglar
+Short cuts make long delays. — J.R.R. Tolkien
 <!--END_SECTION:daily_log-->
 
 ---
