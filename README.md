@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Short cuts make long delays. — J.R.R. Tolkien
+Real loss is only possible when you love something more than you love yourself. — Robin Williams
 <!--END_SECTION:daily_log-->
 
 ---
