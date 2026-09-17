@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Real loss is only possible when you love something more than you love yourself. — Robin Williams
+We can spend our whole lives escaping from the monsters of our minds. — Pema Chodron
 <!--END_SECTION:daily_log-->
 
 ---
