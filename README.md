@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-We can spend our whole lives escaping from the monsters of our minds. — Pema Chodron
+Lost Time is never found again. — Benjamin Franklin
 <!--END_SECTION:daily_log-->
 
 ---
