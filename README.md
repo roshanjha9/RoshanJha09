@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Lost Time is never found again. — Benjamin Franklin
+The only difference between success and failure is the ability to take action. — Alexander Graham Bell
 <!--END_SECTION:daily_log-->
 
 ---
