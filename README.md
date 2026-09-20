@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The only difference between success and failure is the ability to take action. — Alexander Graham Bell
+You can start changing our world for the better daily, no matter how small the action. — Nelson Mandela
 <!--END_SECTION:daily_log-->
 
 ---
