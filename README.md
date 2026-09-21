@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-You can start changing our world for the better daily, no matter how small the action. — Nelson Mandela
+Goodness is the only investment that never fails. — Henry David Thoreau
 <!--END_SECTION:daily_log-->
 
 ---
