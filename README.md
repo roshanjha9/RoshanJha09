@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction. — G.I. Gurdjieff
+When something is important enough, you do it even if the odds are not in your favor. — Elon Musk
 <!--END_SECTION:daily_log-->
 
 ---
