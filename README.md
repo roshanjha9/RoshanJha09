@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-When something is important enough, you do it even if the odds are not in your favor. — Elon Musk
+Winning isn't always championships. — Michael Jordan
 <!--END_SECTION:daily_log-->
 
 ---
