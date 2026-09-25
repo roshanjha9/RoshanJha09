@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Winning isn't always championships. — Michael Jordan
+What loneliness is more lonely than distrust? — George Eliot
 <!--END_SECTION:daily_log-->
 
 ---
