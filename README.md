@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-What loneliness is more lonely than distrust? — George Eliot
+The glow of one warm thought is to me worth more than money. — Thomas Jefferson
 <!--END_SECTION:daily_log-->
 
 ---
