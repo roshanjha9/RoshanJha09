@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The glow of one warm thought is to me worth more than money. — Thomas Jefferson
+People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily. — Zig Ziglar
 <!--END_SECTION:daily_log-->
 
 ---
