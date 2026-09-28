@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily. — Zig Ziglar
+It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — Dalai Lama
 <!--END_SECTION:daily_log-->
 
 ---
