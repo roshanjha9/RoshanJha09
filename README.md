@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — Dalai Lama
+You never know when a moment and a few sincere words can have an impact on a life. — Zig Ziglar
 <!--END_SECTION:daily_log-->
 
 ---
