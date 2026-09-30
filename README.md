@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-You never know when a moment and a few sincere words can have an impact on a life. — Zig Ziglar
+She who loves roses must be patient and not cry out when she is pierced by thorns. — Kenji Miyazawa
 <!--END_SECTION:daily_log-->
 
 ---
