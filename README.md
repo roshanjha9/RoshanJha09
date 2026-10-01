@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-She who loves roses must be patient and not cry out when she is pierced by thorns. — Kenji Miyazawa
+Fools read fast. Geniuses reread. — Maxime Lagace
 <!--END_SECTION:daily_log-->
 
 ---
