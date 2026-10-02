@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Fools read fast. Geniuses reread. — Maxime Lagace
+Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases. — Sathya Sai Baba
 <!--END_SECTION:daily_log-->
 
 ---
