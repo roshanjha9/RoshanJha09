@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases. — Sathya Sai Baba
+The greater the impact you want to make, the greater your influence needs to be. — Lolly Daskal
 <!--END_SECTION:daily_log-->
 
 ---
