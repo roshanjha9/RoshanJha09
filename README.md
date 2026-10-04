@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The greater the impact you want to make, the greater your influence needs to be. — Lolly Daskal
+It is difficult to free fools from the chains they revere. — Voltaire
 <!--END_SECTION:daily_log-->
 
 ---
