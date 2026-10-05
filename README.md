@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-It is difficult to free fools from the chains they revere. — Voltaire
+Death is not sad; the sad thing is that most people don't really live at all. — Dan Millman
 <!--END_SECTION:daily_log-->
 
 ---
