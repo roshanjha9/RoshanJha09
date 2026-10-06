@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Death is not sad; the sad thing is that most people don't really live at all. — Dan Millman
+Absorb what is useful, discard what is not, add what is uniquely your own. — Bruce Lee
 <!--END_SECTION:daily_log-->
 
 ---
