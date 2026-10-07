@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Absorb what is useful, discard what is not, add what is uniquely your own. — Bruce Lee
+Death is not an ending. It is a transformation. — Ming-Dao Deng
 <!--END_SECTION:daily_log-->
 
 ---
