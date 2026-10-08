@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Death is not an ending. It is a transformation. — Ming-Dao Deng
+If you want to find the secrets of the universe, think in terms of energy, frequency and vibration. — Nikola Tesla
 <!--END_SECTION:daily_log-->
 
 ---
