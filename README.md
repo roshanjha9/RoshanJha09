@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-If you want to find the secrets of the universe, think in terms of energy, frequency and vibration. — Nikola Tesla
+It all depends on what you choose to believe. — Spencer Johnson
 <!--END_SECTION:daily_log-->
 
 ---
