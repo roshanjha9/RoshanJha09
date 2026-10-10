@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-It all depends on what you choose to believe. — Spencer Johnson
+You Create Your Own Present By What You Give Your Attention To Today. — Spencer Johnson
 <!--END_SECTION:daily_log-->
 
 ---
