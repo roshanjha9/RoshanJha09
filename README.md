@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-You Create Your Own Present By What You Give Your Attention To Today. — Spencer Johnson
+It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. — Albus Dumbledore
 <!--END_SECTION:daily_log-->
 
 ---
