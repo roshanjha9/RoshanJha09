@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. — Albus Dumbledore
+When I let go of what I am, I become what I might be. — Lao Tzu
 <!--END_SECTION:daily_log-->
 
 ---
