@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-When I let go of what I am, I become what I might be. — Lao Tzu
+It does not do to dwell on dreams and forget to live, remember that. — Albus Dumbledore
 <!--END_SECTION:daily_log-->
 
 ---
