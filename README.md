@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-It does not do to dwell on dreams and forget to live, remember that. — Albus Dumbledore
+The chief enemy of creativity is good sense. — Pablo Picasso
 <!--END_SECTION:daily_log-->
 
 ---
