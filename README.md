@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The chief enemy of creativity is good sense. — Pablo Picasso
+See what you're doing wrong, laugh at it, change and do better. — Spencer Johnson
 <!--END_SECTION:daily_log-->
 
 ---
