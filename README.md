@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-See what you're doing wrong, laugh at it, change and do better. — Spencer Johnson
+What the mind can conceive, it can achieve. — Napoleon Hill
 <!--END_SECTION:daily_log-->
 
 ---
