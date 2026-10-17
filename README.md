@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-What the mind can conceive, it can achieve. — Napoleon Hill
+The road to success is always under construction.. — Lily Tomlin
 <!--END_SECTION:daily_log-->
 
 ---
