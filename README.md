@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The road to success is always under construction.. — Lily Tomlin
+Anyone who reads a book with a sense of obligation does not understand the art of reading. — Lin Yutang
 <!--END_SECTION:daily_log-->
 
 ---
