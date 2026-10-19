@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Anyone who reads a book with a sense of obligation does not understand the art of reading. — Lin Yutang
+Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — Gary Keller
 <!--END_SECTION:daily_log-->
 
 ---
