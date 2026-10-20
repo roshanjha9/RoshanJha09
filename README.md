@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — Gary Keller
+Success is never final, failure is never fatal. It's courage that counts. — John Wooden
 <!--END_SECTION:daily_log-->
 
 ---
