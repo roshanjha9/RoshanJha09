@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Success is never final, failure is never fatal. It's courage that counts. — John Wooden
+Ability is a poor man's wealth. — John Wooden
 <!--END_SECTION:daily_log-->
 
 ---
