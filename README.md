@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Ability is a poor man's wealth. — John Wooden
+There is nothing like looking if you want to find something. — J.R.R. Tolkien
 <!--END_SECTION:daily_log-->
 
 ---
