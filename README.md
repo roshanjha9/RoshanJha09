@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-There is nothing like looking if you want to find something. — J.R.R. Tolkien
+One of the oldest human needs is having someone to wonder where you are when you don't come home at night. — Margaret Mead
 <!--END_SECTION:daily_log-->
 
 ---
