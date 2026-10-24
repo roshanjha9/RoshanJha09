@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-One of the oldest human needs is having someone to wonder where you are when you don't come home at night. — Margaret Mead
+Our life isn't how much we can take out, but how much we can put in. — Estee Lauder
 <!--END_SECTION:daily_log-->
 
 ---
