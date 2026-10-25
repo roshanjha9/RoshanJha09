@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Our life isn't how much we can take out, but how much we can put in. — Estee Lauder
+Supreme excellence consists of breaking the enemy's resistance without fighting. — Sun Tzu
 <!--END_SECTION:daily_log-->
 
 ---
