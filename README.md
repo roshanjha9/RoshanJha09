@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Supreme excellence consists of breaking the enemy's resistance without fighting. — Sun Tzu
+In the practice of tolerance, one's enemy is the best teacher. — Dalai Lama
 <!--END_SECTION:daily_log-->
 
 ---
