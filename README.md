@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-In the practice of tolerance, one's enemy is the best teacher. — Dalai Lama
+Circumstances do not make the man, they reveal him. — James Allen
 <!--END_SECTION:daily_log-->
 
 ---
