@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Circumstances do not make the man, they reveal him. — James Allen
+Nothing has any power over me other than that which I give it through my conscious thoughts. — Tony Robbins
 <!--END_SECTION:daily_log-->
 
 ---
