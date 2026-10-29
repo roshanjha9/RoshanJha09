@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Nothing has any power over me other than that which I give it through my conscious thoughts. — Tony Robbins
+Given the choice between the experience of pain and nothing, I would choose pain. — William Faulkner
 <!--END_SECTION:daily_log-->
 
 ---
