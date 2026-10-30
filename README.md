@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Given the choice between the experience of pain and nothing, I would choose pain. — William Faulkner
+Judgments prevent us from seeing the good that lies beyond appearances. — Wayne Dyer
 <!--END_SECTION:daily_log-->
 
 ---
