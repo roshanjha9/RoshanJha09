@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Judgments prevent us from seeing the good that lies beyond appearances. — Wayne Dyer
+Happiness is a quality of the soul...not a function of one's material circumstances. — Aristotle
 <!--END_SECTION:daily_log-->
 
 ---
