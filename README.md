@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Happiness is a quality of the soul...not a function of one's material circumstances. — Aristotle
+On the other side of the clouds is a bright blue sky. — Unknown
 <!--END_SECTION:daily_log-->
 
 ---
