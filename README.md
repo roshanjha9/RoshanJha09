@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-On the other side of the clouds is a bright blue sky. — Unknown
+We must learn to live together as brothers or perish together as fools. — Martin Luther King, Jr.
 <!--END_SECTION:daily_log-->
 
 ---
