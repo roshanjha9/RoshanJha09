@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-We must learn to live together as brothers or perish together as fools. — Martin Luther King, Jr.
+Setting goals is the first step in turning the invisible into the visible. — Tony Robbins
 <!--END_SECTION:daily_log-->
 
 ---
