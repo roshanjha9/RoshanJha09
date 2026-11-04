@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Setting goals is the first step in turning the invisible into the visible. — Tony Robbins
+In the practice of tolerance, one's enemy is the best teacher. — Dalai Lama
 <!--END_SECTION:daily_log-->
 
 ---
