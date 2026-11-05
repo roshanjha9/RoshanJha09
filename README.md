@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-In the practice of tolerance, one's enemy is the best teacher. — Dalai Lama
+Remember that the best relationship is one in which your love for each other exceeds your need for each other. — Dalai Lama
 <!--END_SECTION:daily_log-->
 
 ---
