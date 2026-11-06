@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Remember that the best relationship is one in which your love for each other exceeds your need for each other. — Dalai Lama
+A hero is an ordinary person doing things in an extra ordinary way. — Christopher Reeve
 <!--END_SECTION:daily_log-->
 
 ---
