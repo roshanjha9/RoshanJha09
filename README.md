@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — Confucius
+Do you have the patience to wait until your mud settles and the water is clear? — Lao Tzu
 <!--END_SECTION:daily_log-->
 
 ---
