@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Do you have the patience to wait until your mud settles and the water is clear? — Lao Tzu
+Whatever you do, strive to do it so well that no man living and no man dead and no man yet to be born could do it any better. — Benjamin Mays
 <!--END_SECTION:daily_log-->
 
 ---
