@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Whatever you do, strive to do it so well that no man living and no man dead and no man yet to be born could do it any better. — Benjamin Mays
+Dreams have only one owner at a time. That's why dreamers are lonely. — William Faulkner
 <!--END_SECTION:daily_log-->
 
 ---
