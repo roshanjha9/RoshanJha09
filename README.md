@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Dreams have only one owner at a time. That's why dreamers are lonely. — William Faulkner
+Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. — Steve Jobs
 <!--END_SECTION:daily_log-->
 
 ---
