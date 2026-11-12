@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. — Steve Jobs
+When the root is strong, the fruit is sweet. — Bob Marley
 <!--END_SECTION:daily_log-->
 
 ---
