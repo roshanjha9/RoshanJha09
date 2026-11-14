@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — Unknown
+Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — Morihei Ueshiba
 <!--END_SECTION:daily_log-->
 
 ---
