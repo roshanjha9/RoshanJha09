@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — Morihei Ueshiba
+The first step is to establish that something is possible; then probability will occur. — Elon Musk
 <!--END_SECTION:daily_log-->
 
 ---
