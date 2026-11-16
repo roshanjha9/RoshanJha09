@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The first step is to establish that something is possible; then probability will occur. — Elon Musk
+To be of use to the world is the only way to be happy. — Hans Christian Andersen
 <!--END_SECTION:daily_log-->
 
 ---
