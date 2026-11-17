@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-To be of use to the world is the only way to be happy. — Hans Christian Andersen
+There is a wisdom of the head, and there is a wisdom of the heart. — Charles Dickens
 <!--END_SECTION:daily_log-->
 
 ---
