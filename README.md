@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-There is a wisdom of the head, and there is a wisdom of the heart. — Charles Dickens
+If you cannot control your emotions, you cannot control your money. — Warren Buffett
 <!--END_SECTION:daily_log-->
 
 ---
