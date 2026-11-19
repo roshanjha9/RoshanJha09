@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-If you cannot control your emotions, you cannot control your money. — Warren Buffett
+Remember that this moment is not your life, it's just a moment in your life. Focus on what is in front of you, right now. — Ryan Holiday
 <!--END_SECTION:daily_log-->
 
 ---
