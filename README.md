@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-Remember that this moment is not your life, it's just a moment in your life. Focus on what is in front of you, right now. — Ryan Holiday
+The road to success is always under construction.. — Lily Tomlin
 <!--END_SECTION:daily_log-->
 
 ---
