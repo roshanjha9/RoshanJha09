@@ -10,7 +10,7 @@
 ## 🧠 Daily Motivation
 
 <!--START_SECTION:daily_log-->
-The road to success is always under construction.. — Lily Tomlin
+Don't worry about being successful, but work toward being significant and the success will naturally follow. — Oprah Winfrey
 <!--END_SECTION:daily_log-->
 
 ---
